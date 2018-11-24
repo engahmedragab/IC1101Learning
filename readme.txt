@@ -1,0 +1,1 @@
+hear is the tech reps to learn the new tech to IC1101.
